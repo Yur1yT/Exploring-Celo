@@ -1,0 +1,2 @@
+# Exploring-Celo
+Today I find new activity - Xelo Prosperity pass. I'm really interested and want to explore it
